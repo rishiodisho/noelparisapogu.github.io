@@ -1,1 +1,0 @@
-# noelparisapogu.github.io
